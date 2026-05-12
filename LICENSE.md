@@ -1,4 +1,4 @@
-# 
+# rare NordPass for macOS Service | cross-device-sync + firewall-protection is the best NordPass for macOS service, featuring cross-device-sync and firewall-protection. Secure,
 
 
 
